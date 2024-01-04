@@ -1,5 +1,5 @@
 
 ### Hi, I'm Ziyan 👋 
 
-- 🤖 coding, running, reading
+- 🤖 coding, reading, running
 
