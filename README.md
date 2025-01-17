@@ -1,5 +1,3 @@
 
 ### Hi, I'm Ziyan 👋 
-
-- 🤖 coding, reading, running
-
+Sitting in silence, writing random things
